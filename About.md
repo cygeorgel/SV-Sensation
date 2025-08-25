@@ -4,10 +4,8 @@ Sensation is  a RM 1060 sailboat, built by Fora Marine in 2013. I bought her in 
 
 [She is named after the poem by Arthur Rimbaud](01.%20Sensation%20(Arthur%20Rimbaud).md).
 
-![Sensation](https://storage.gra.cloud.ovh.net/v1/AUTH_9c30d35f284f44b2bda08609e7c19f33/cyrille_public/Pictures/Sensation/IMG_20250719_081957.jpg)
+![Sensation](https://storage.gra.cloud.ovh.net/v1/AUTH_9c30d35f284f44b2bda08609e7c19f33/cyrille_public/Pictures/Sensation/02/01/IMG_20250719_081957.jpg)
 
-
-![Sensation](https://storage.gra.cloud.ovh.net/v1/AUTH_9c30d35f284f44b2bda08609e7c19f33/cyrille_public/Pictures/Sensation/IMG_20250723_122953.jpg)
-
+![Sensation](https://storage.gra.cloud.ovh.net/v1/AUTH_9c30d35f284f44b2bda08609e7c19f33/cyrille_public/Pictures/Sensation/02/03/IMG_20250723_122953.jpg)
 
 Instagram : https://www.instagram.com/sailing_sensation/
